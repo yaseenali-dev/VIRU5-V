@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VIRU5-V
+- 👀 I’m interested in computers and science.
+- 🌱 I’m currently learning web development.
+- 📫 How to reach me virus_myaseenvirus@yahoo.com.
